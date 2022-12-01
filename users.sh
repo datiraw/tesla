@@ -1,0 +1,12 @@
+Uzo
+Amara
+Amaka
+Amaku
+Lsp
+Ibro
+Ub
+Gideon
+Rawdog
+Indigo
+Sito
+Crayon
